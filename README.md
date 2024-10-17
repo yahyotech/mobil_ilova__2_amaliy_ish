@@ -1,0 +1,1 @@
+# mobil_ilova__2_amaliy_ish
